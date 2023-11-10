@@ -1,0 +1,1 @@
+<div align="center"><br /><p><a href="#"><img src="https://cdn.discordapp.com/attachments/800651770924892161/1172344896565289070/minecraft.gif" width="546" alt="Minecraft" /></a></p></div>
